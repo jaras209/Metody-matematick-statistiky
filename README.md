@@ -1,1 +1,1 @@
-# Metody-matematicke-statistiky
+# Metody matematicke statistiky
